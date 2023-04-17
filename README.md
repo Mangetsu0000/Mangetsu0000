@@ -6,7 +6,7 @@ Greetings I'm a enior software engineering student, tutor, web development and a
 I pick things up really quick, I'm open for any learning opportunities.
 <br/>
 <br/>
-Visit my web page to lean more about me 👉: https://m-f-mouelhi.web.app/
+Visit my web page to learn more about me 👉: https://m-f-mouelhi.web.app/
 
 ---
 
